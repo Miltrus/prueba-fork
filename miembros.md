@@ -23,3 +23,6 @@
 21. Giganta
 22. Deadshot
 23. Scarecrow
+24. cris valencia
+25. jh
+26, ser blas el mueco

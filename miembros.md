@@ -25,4 +25,5 @@
 23. Scarecrow
 24. cris valencia
 25. jh
-26, ser blas el mueco
+26. ser blas el mueco
+27. luis castillo
